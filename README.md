@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CrevicePark
+- 👋 Hi, I’m @EthanPark
 - 👀 I’m interested in New Technology
 - 🌱 I’m currently learning about business for IT
 - 💞️ I’m looking to collaborate on IP
